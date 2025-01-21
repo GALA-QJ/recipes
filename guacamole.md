@@ -2,6 +2,6 @@
 ## Ingredients
 ## Instructions
 *Avocado
-*lemon
+*lime
 ##Instructions
 *mix and mash 
